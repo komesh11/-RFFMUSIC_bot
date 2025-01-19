@@ -1,2 +1,2 @@
 # -RFFMUSIC_bot
-Yes
+all time service available 
